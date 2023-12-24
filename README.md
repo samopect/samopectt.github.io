@@ -1,0 +1,1 @@
+# samopectt.github.io
